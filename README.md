@@ -1,0 +1,2 @@
+# kontol-maning
+fuck
